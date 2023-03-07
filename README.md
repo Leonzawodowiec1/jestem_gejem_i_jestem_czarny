@@ -1,1 +1,1 @@
-# tutorial
+# jestem gejem i jestem czarny
